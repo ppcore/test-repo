@@ -1,1 +1,1 @@
-kokokos
+kolokos
